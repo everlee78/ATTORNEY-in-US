@@ -1,2 +1,2 @@
 # ATTORNEY-in-US
-Trump's attorney including 
+Is the amnesty power of the US president working well?
